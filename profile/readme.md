@@ -1,1 +1,1 @@
-thigh pictures
+[telegram](https://t.me/thighpictures)
